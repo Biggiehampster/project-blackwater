@@ -45,14 +45,6 @@ https://www.tinkercad.com/things/bIwHDR2FtSP-swanky-amberis/edit?sharecode=BilP5
 GDC2006_HL2DesignProcess.pdf 
 
 
-|| CHAT || 
-Charlie: 
-Conor: 
-Cathal:
-Thomas:
-Sami:
-John:
-
 Story:
 (this is a very rough draft so this can be altered)        Blue = charlie This other blue = Sami
 During the height of the cold war and space race, mining group 547 discovers a new element called Tangium In the mines. This element allows for major technological advancements, but that comes with a price. The soviet union has started using this element to create super soldiers, capable of wiping out entire cities. To combat this, the US, Canada, Mexico, and Britain team up to create an elite task force of their own, created to combat the soviets. After tensions rise enough with technology constantly being developed on both sides, the Soviets attack London, and as world war 3 begins, the elite task force is deployed to neutralize all threats in london.
